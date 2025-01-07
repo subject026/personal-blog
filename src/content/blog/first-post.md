@@ -5,7 +5,7 @@ pubDate: "Jan 07 2025"
 heroImage: "/cheese_board.jpg"
 ---
 
-There are many different types of cheese. There are also many different types of people. Different people like different types of cheese. This post aims to give you an overview of people and cheese preference.
+There are many different types of cheese. There are also many different types of people. Different people like different types of cheese. This post aims to give you an overview of people and cheeses.
 
 There are soft cheeses and hard cheeses, thick cheeses and thin cheeses, big cheeses and small cheeses, cheap cheeses and expensive cheeses. There are many other types of cheese.
 
