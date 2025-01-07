@@ -11,7 +11,7 @@ There are soft cheeses and hard cheeses, thick cheeses and thin cheeses, big che
 
 Different people often like different types of cheese. Some people like large soft cheeses while others prefer small hard cheeses. Some like a cheap thick cheese, others an expensive thin cheese. Some people don't like cheese at all. Etc.
 
-Often a persons cheese preference comes down to a mixture of genetics and the enviornment they grew up in. As a person doesn't get to choose either of these things I try not to judge people on their cheese preference. You might feel differently.
+Often a persons cheese preference comes down to a mixture of genetics and the environment they grew up in. As a person doesn't get to choose either of these things I try not to judge people on their cheese preference. You might feel differently.
 
 Congratulations on reaching the end of this article about people and cheese preference. Hopefully you now have a better understanding of people and cheese preference.
 
