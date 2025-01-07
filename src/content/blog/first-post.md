@@ -13,6 +13,6 @@ Different people often like different types of cheese. Some people like large so
 
 Often a persons cheese preference comes down to a mixture of genetics and the environment they grew up in. As a person doesn't get to choose either of these things I try not to judge people on their cheese preference. You might feel differently.
 
-Congratulations on reaching the end of this article about people and cheese preference. Hopefully you now have a better understanding of people and cheese preference.
+Congratulations on reaching the end of this article about people and cheeses. Hopefully you now have a better understanding of people and cheeses.
 
 Thankyou for reading.
